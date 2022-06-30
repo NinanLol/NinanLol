@@ -8,6 +8,13 @@
 I AM A BANANA AM I? UNLESS I AM MISTAKEN...
 
 I have nothing to do lol
+
 I am me and I shall always be
+
 Now I am bored 
+
 Pls help
+
+
+
+Still don't know how to code
